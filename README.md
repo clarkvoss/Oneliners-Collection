@@ -1,2 +1,2 @@
-# My OnelIners Collection
+# My Oneliners Collection
 That's gold, Jerry! GOLD!
